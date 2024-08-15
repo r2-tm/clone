@@ -1,1 +1,2 @@
 # clone
+what i am looking forward to in this class is a number of things, most likly building the websites would be the thing i am looking forward to the most. and making the website look how id like sounds great. i am just very intrested in all of it as a whole.
